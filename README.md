@@ -37,7 +37,7 @@
 ---
 
 ## 🌍 Sosyal Medya & İletişim  
-- 🎥 YouTube: (https://youtube.com/@NELERYOKKi. ) 
+- 🎥 YouTube: (https://www.kisa.link/DHYCO) 
 - 📝 Blog: **https://haber2026.blogspot.com**  
 - 🌐 Projelerim: [megaxshop.com.tr](https://megaxshop.com.tr), [lolaforum.com.tr](https://lolaforum.com.tr)  
 
